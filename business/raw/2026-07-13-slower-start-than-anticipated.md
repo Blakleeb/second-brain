@@ -1,0 +1,1 @@
+Getting started is way slower than I anticipated. Three weeks in, only 2 jobs and ~$500 in revenue. I know it's early, but the gap between what I expected and where things actually are is bigger than I planned for.
